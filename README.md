@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mrsviatoslav
 - 👀 I’m interested in everything creative
-- 🌱 I’m currently learning video editing
+- 🌱 I’m currently learning photo and video editing
 - 💞️ I’m looking to collaborate on web designing
 - 📫 How to reach me schernetskyi98@gmail.com
 
